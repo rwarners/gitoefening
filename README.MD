@@ -1,4 +1,3 @@
 Ronald
 Tu
 Mohammad
-Brooklyn
